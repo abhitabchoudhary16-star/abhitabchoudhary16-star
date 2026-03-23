@@ -1,4 +1,4 @@
-# Hi there, I'm Abhitab Choudhary! 👋
+# Hi there, I'm Abhitab Singh! 👋
 
 🎯 Aspiring Software Developer | Fresher | Open to Opportunities
 
